@@ -1,3 +1,13 @@
+## **[7SLOTS'A KAYIT OLARAK GERÇEK PARAYLA SWEET BONANZA OYNAMAK İÇİN TIKLAYIN**](https://cutt.ly/EeEXltiX)
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
 # SWEET BONANZA OYNA SWEET
 
 
